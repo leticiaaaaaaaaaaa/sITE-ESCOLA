@@ -1,2 +1,0 @@
-# sITE-ESCOLA
-Tsk
